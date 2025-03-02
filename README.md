@@ -1,4 +1,4 @@
-## Seja Bem vindo(a) ao thayaneibduarte 👋🏽🎭
+## Seja Bem vindo(a) ao thayaneibduarte 👩‍💻💜
 
  <div>
    <a href="https://github.com/thayaneibduarte">
